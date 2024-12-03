@@ -1,1 +1,6 @@
 # project_1![Screenshot 2024-12-03 112940](https://github.com/user-attachments/assets/3d8f7158-60a6-4238-b8da-252ee6c5982d)
+![Screenshot 2024-12-03 113213](https://github.com/user-attachments/assets/e632fe46-4edf-4ab6-844a-ee059d509134)
+![Screenshot 2024-12-03 113223](https://github.com/user-attachments/assets/8fd1d93d-d77d-4d6c-98f2-e0b7e27fbbb6)
+![Screenshot 2024-12-03 113245](https://github.com/user-attachments/assets/26d87e20-d8d8-47f1-8cf5-db957f94eefe)
+![Screenshot 2024-12-03 113259](https://github.com/user-attachments/assets/a426af53-8591-4927-880e-531edff34c58)
+![Screenshot 2024-12-03 113313](https://github.com/user-attachments/assets/cff5376e-6621-4d99-b44e-eb9d7b12f125)
